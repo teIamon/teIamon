@@ -1,5 +1,5 @@
 ##
-- ✦ max
+- ✦ max / biograft / dandy + unlisted . .
 - ✦ he / she
 - ✦ semiverbal / nonverbal unless friend
 - ✦ whispers preferred, iwec always unless close

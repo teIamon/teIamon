@@ -1,10 +1,10 @@
 ##
-- ✦ max / cocoa !!
-- ✦ minor + aroace
+- ✦ max
+- ✦ he / she
 - ✦ semiverbal / nonverbal unless friend
 - ✦ whispers preferred, iwec always unless close
-- ✦ c+h allowed, i don't bite
-- ✦ social anxiety & crowd discomfort
+- ✦ c+h allowed
+- ✦ social anxiety
 <!--
 **TWIDDLEFINGER/TWIDDLEFINGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

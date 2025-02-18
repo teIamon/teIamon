@@ -1,10 +1,22 @@
 ##
 <h1>
-  before you interact!!
+  ponytown info/status :)
 </h1>
 
 <p>
-  i can be really childish at times, especially if i know you! of course i can control it if you want ^_^
+idle = my main status! maybe offtab (if alone)
+</p>
+
+<p>
+do not disturb = very busy, don't whisper..
+</p>
+
+<p>
+offline = don't interact unless i do (targetted to friends)
+</p>
+<hr>
+<p>
+  i love cuddles and hides!! (c+h) always feel free to do so, even if i'm in a bad mood (nv, iwec, etc.)
 </p>
 
 <p>
@@ -12,7 +24,15 @@
 </p>
 
 <p>
-  i love cuddles and hugs!! (c+h) please feel free to do so!
+  whispers are much more preferred when talking first! (please)
+</p>
+
+<h1>
+  before you interact!!
+</h1>
+
+<p>
+  i can be really childish at times, especially if i know you! of course i can control it if you want ^_^
 </p>
 
 <p>
@@ -34,6 +54,10 @@
 <p>
   basic dni criteria.. of course, i don't really have anything else. i block freely!
 </p>
+
+<hr>
+
+' i'm just TOO pro LOL!! XD '
 
 <!--
 **TWIDDLEFINGER/TWIDDLEFINGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

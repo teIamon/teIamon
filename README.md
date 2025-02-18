@@ -1,4 +1,9 @@
 ##
+<p>
+i'm just pro LOL!! XD
+</p>
+
+![hi](https://media1.tenor.com/m/W8DXtVFv2ZwAAAAC/forsaken-roblox-forsaken.gif)
 <h1>
   ponytown info/status :)
 </h1>
@@ -54,10 +59,6 @@ offline = don't interact unless i do (targetted to friends)
 <p>
   basic dni criteria.. of course, i don't really have anything else. i block freely!
 </p>
-
-<hr>
-
-' i'm just TOO pro LOL!! XD '
 
 <!--
 **TWIDDLEFINGER/TWIDDLEFINGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -37,7 +37,7 @@ offline = don't interact unless i do (targetted to friends)
 </h1>
 
 <p>
-i don't really feel like myself nowadays, plz iwec unless friend :(
+unstable, plz iwec unless friend :(
 </p>
 
 <p>

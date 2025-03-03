@@ -1,9 +1,9 @@
 ##
 <p>
-i'm just pro LOL!! XD
+IT A FACKING FISH PEN BROOO!!!!?
 </p>
 
-![hi](https://media1.tenor.com/m/W8DXtVFv2ZwAAAAC/forsaken-roblox-forsaken.gif)
+![](https://github.com/user-attachments/assets/c97ea6e8-a621-46db-8dbb-184603238840)
 <h1>
   ponytown info/status :)
 </h1>

@@ -1,6 +1,6 @@
 ##
 <p>
-IT A FACKING FISH PEN BROOO!!!!?
+tbis pen makes me so happy
 </p>
 
 ![](https://github.com/user-attachments/assets/c97ea6e8-a621-46db-8dbb-184603238840)

@@ -1,5 +1,5 @@
 <p align="center">
-  I'M YOUR TEDDY⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>LOVELY LITTLE CUTIE</ins>
+  I WANNA BE⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>LOVED BY YOU</ins>
 </p>
 
 <p align="center">

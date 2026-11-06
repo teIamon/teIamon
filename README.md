@@ -1,10 +1,2 @@
-<p align="center">
-  <img src="https://meawsource.carrd.co/assets/images/image07.png?v=36ba2fbc">
-</p>
-<p align="center">
-  <a href=https://rentry.co/shedIetsky>rentry.</a>
-</p>
-<br>
-<p align="center">
-  ac: @sometimes1xshed
-</p>
+<p align="center"> $\\\\large\\\\color{#A85465}{\\\\textsf{test}}$ </p>
+$\color{#FCF0E9}{\text{test}}$
